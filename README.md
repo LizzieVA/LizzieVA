@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LizzieVA
-- 👀 I’m interested in listening to music and reading boos
+- 👀 I’m interested in listening to music and reading books
 - 🌱 I’m currently learning how to speak Spanish 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me elizabethossai25@gmail.com
